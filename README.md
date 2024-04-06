@@ -1,6 +1,6 @@
 
 
-# Hi, I'm Bhavik! 👋
+# Hi, I'm Bhavik Kanparia! 👋
 
 
 ## 🚀 About Me
